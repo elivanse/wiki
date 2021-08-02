@@ -1,0 +1,2 @@
+<h1>Oliverio Girondo</h1>
+<p>Oliverio Girondo (August 17, 1891 – January 24, 1967) was an Argentine poet. He was born in Buenos Aires to a relatively wealthy family, enabling him from a young age to travel to Europe, where he studied in both Paris and England. He is perhaps most famous for his participation in the magazines (Proa, Prisma and Martín Fierro), which ushered in the arrival of ultraism, the first of the vanguardist movements to settle in Argentina</p>

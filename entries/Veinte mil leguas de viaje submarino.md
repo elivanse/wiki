@@ -1,0 +1,3 @@
+<h1>Veinte mil leguas de viaje submarino</h1>
+<h2>por Julio Verne</h2>
+<p>De manera íntegra, la obra fue publicada en Francia en dos partes (en 1869 la primera; y en 1870, la segunda). Por razones desconocidas, ambas partes, traducidas por Vicente Guimerá, aparecieron publicadas conjuntamente en el año 1869 en España por el establecimiento tipográfico de Tomás Rey y Cía.,2​ debido posiblemente a algún tipo de amistad personal entre Hetzel y Guimerá. Este dato parece desconocido por los biógrafos de Verne que citan como primera la edición francesa, siendo sin embargo la española, aunque con una tirada escasa.</p>
